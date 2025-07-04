@@ -19,4 +19,4 @@
 
 总之，选择一个稳定更新且操作便捷的日本AV免费视频平台，不仅能节省开支，还能享受高清流畅的看片体验。掌握正确的观看渠道，你就能轻松找到喜欢的影片，畅享无忧无虑的观影乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt4 ）</span>
